@@ -28,7 +28,7 @@ A Portrait of the Artist as a Young Man<br />
 <br />
 
 ISBN 978-619-93357-1-0\
-Gloss-laminate covers for vibrant colors and durability.\
+High gloss laminate covers for vibrant colors and durability.\
 Quotes on white pages for maximum readability and creative freedom.\
 Shop the book: https://irabooks.com/products/here-comes-the-noble-dedalus \
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
@@ -44,7 +44,7 @@ of a Shakespeare play<br />
 <br />
 
 ISBN 978-619-93357-0-3\
-Gloss-laminate covers for vibrant colors and durability.\
+High gloss laminate covers for vibrant colors and durability.\
 Quotes on white pages for maximum readability and creative freedom.\
 Shop the book: https://irabooks.com/products/a-midsummer-nights-dream \
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
