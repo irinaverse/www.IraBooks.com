@@ -1,5 +1,5 @@
 ## Open up your future
-Bulgarian Ira Books Publishing changes the experience of reading quotes. Spiral binding for 360-degree rotation. Lay flat, fold back, make notes, explore. Joycean language and Shakespearean language in quotation selections. Three titles currently available:
+Bulgarian Ira Books Publishing changes the experience of reading quotes. Spiral binding for 360-degree rotation. Lay flat, fold back, take notes, explore. Joycean language and Shakespearean language in quotation selections. Three titles currently available:
 <br />
 
 <br />
@@ -12,10 +12,9 @@ Quotation Selection in poetic form<br />
 <br />
 
 ISBN 978-619-93357-2-7\
-Gloss-laminate covers for vibrant colors and durability.\
+High gloss laminate covers for vibrant colors and durability.\
 Quotes on white pages for maximum readability and creative freedom.\
-Printed in Bulgaria by Ira Books Publishing.\
-Shop the book: https://irabooks.com/products/i-tell-you-no-story-smile
+Shop the book: https://irabooks.com/products/i-tell-you-no-story-smile \
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 <br />
 
@@ -31,8 +30,7 @@ A Portrait of the Artist as a Young Man<br />
 ISBN 978-619-93357-1-0\
 Gloss-laminate covers for vibrant colors and durability.\
 Quotes on white pages for maximum readability and creative freedom.\
-Printed in Bulgaria by Ira Books Publishing.\
-Shop the book: https://irabooks.com/products/here-comes-the-noble-dedalus
+Shop the book: https://irabooks.com/products/here-comes-the-noble-dedalus \
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 <br />
 
@@ -48,7 +46,6 @@ of a Shakespeare play<br />
 ISBN 978-619-93357-0-3\
 Gloss-laminate covers for vibrant colors and durability.\
 Quotes on white pages for maximum readability and creative freedom.\
-Printed in Bulgaria by Ira Books Publishing.\
-Shop the book: https://irabooks.com/products/a-midsummer-nights-dream
+Shop the book: https://irabooks.com/products/a-midsummer-nights-dream \
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 <br />
