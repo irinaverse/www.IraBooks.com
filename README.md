@@ -1,5 +1,6 @@
 ## Open up your future
-Bulgarian Ira Books Publishing changes the experience of reading quotes. Spiral binding for 360-degree rotation. Lay flat, fold back, take notes, explore. Joycean language and Shakespearean language in quotation selections. Three titles currently available:
+Bulgarian Ira Books Publishing changes the experience of reading quotes. Spiral binding for 360-degree rotation. Lay flat, fold back, take notes, explore. Joycean language and Shakespearean language in quotation selections.\
+Three titles currently available:
 
 <br />
 Book 1:
