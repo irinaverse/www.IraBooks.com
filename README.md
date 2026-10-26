@@ -13,7 +13,7 @@ ISBN 978-619-93357-2-7\
 High gloss laminate covers for vibrant colors and durability.\
 Quotes on white pages for maximum readability and creative freedom.\
 Shop the book: https://irabooks.com/products/i-tell-you-no-story-smile \
-Request wholesale pricing for groups, students, coffeehouses etc.\
+Request wholesale pricing for groups, students, coffeehouses etc.
 _______________
 <br />
 Book 2:
@@ -26,7 +26,7 @@ ISBN 978-619-93357-1-0\
 High gloss laminate covers for vibrant colors and durability.\
 Quotes on white pages for maximum readability and creative freedom.\
 Shop the book: https://irabooks.com/products/here-comes-the-noble-dedalus \
-Request wholesale pricing for groups, students, coffeehouses etc.\
+Request wholesale pricing for groups, students, coffeehouses etc.
 _______________
 <br />
 Book 3:
